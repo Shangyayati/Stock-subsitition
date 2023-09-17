@@ -1,2 +1,3 @@
 # Stock-subsitition
-![image](https://github.com/Shangyayati/Stock-subsitition/assets/142186285/ccf4b068-ce2f-4a7d-937d-1278f5209227)
+![image](https://github.com/Shangyayati/Stock-subsitition/assets/142186285/839f58a8-682b-48e9-bcb1-af43c6344c82)
+
